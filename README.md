@@ -9,3 +9,4 @@ gosto de jogar bola...
 .
 🇺🇲🫆
 ![](https://media1.tenor.com/m/iBeLsOeiueoAAAAC/joker-laughing.gif)
+##_@g.henriiquee_
