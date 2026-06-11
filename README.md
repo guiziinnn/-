@@ -8,4 +8,4 @@ gosto de jogar bola...
 .
 .
 🇺🇲🫆
-![]https://media1.tenor.com/m/iBeLsOeiueoAAAAC/joker-laughing.gif
+![](https://media1.tenor.com/m/iBeLsOeiueoAAAAC/joker-laughing.gif)
